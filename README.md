@@ -2,4 +2,4 @@
 - 👀 I’m interested in web development
 - 🌱 I’m always learning
 - 💞️ I’m looking to collaborate on big projects worldwide :D
-- 📫 How to reach me oscaraldanaassad@gmail.com
+- 📫 How to reach me https://www.linkedin.com/in/oaa97181/
